@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: mohitvuyala@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Email was invented by a Indian , Shivadurai Ayyapan , when he was 14.
--->
